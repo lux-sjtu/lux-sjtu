@@ -1,5 +1,4 @@
 ## Hi there 👋
-- 👋 Hi, I’m Xuan Lu (路璇)
 
 
 
